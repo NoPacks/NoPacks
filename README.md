@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NoPacks
 - 👀 I’m interested in Games
-- 🌱 I’m currently learning Languages and Project Managment
+- 🌱 I’m currently learning english,japanese and Project Managment
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
